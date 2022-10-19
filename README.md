@@ -4,9 +4,9 @@
 # ❤️ Smart Contract | Full-Stack Developer ❤️
 
   ### 🍳 How to contact me 🍳
-      ⭐ Skype:  live:.cid.14b2768073e990e2
+      ⭐ Skype:  live:live:.cid.c35698c0053105ab
       ⭐ Discord: stas.knyiazkin606#6730
-      ⭐ Telegram: https://t.me/Collect_K
+      
 
   ### 🥝 Smart Contract | Blockchain | NFT | ICO | Defi | UniSwap | Dapp 🥝
     ⭐ Blockchain developer ⭐
