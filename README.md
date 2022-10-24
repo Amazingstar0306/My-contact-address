@@ -4,7 +4,7 @@
 # ❤️ Smart Contract | Full-Stack Developer ❤️
 
   ### 🍳 How to contact me 🍳
-      ⭐ Skype:  live:live:.cid.c35698c0053105ab
+      ⭐ Skype:  live:.cid.de29c8491d72bcdf
       ⭐ Discord: stas.knyiazkin606#6730
       
 
